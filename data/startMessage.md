@@ -1,4 +1,4 @@
-欢迎规则 @guuucbot  全处：https://t.me/+hGIa9oMBNmBkMDE0
+欢迎规则 @guuucbot  全处：
 
 使用方法：
 
